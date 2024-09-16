@@ -1,2 +1,1 @@
-# learn3
-hello this is for practice ans nothing all
+hi how are you i am on 3rd
